@@ -4,7 +4,4 @@ this is note from youssef iti acount
 
 
 
-
-
-
 # second edit
